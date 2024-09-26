@@ -1,2 +1,2 @@
 
-sreynan75/sreynan75 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+bunathu@gmail.com/bunathu@gmail.com is a ✨ special098221996 ✨ repository because its `README.md` (this file) appears on your GitHub profile.
